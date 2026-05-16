@@ -1,4 +1,4 @@
-# 
+# new Adobe Audition for PC | Adobe Audition for Windows Transition | macro-recording + noise-reduction offers the most advanced Adobe Audition for PC | Adobe Audition for Windows
 
 
 
